@@ -1,1 +1,1 @@
-# ethan-portfolio-starter
+# Heracleion Capital
